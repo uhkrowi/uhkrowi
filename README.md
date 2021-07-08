@@ -8,7 +8,7 @@ I do code and design application 🚀
 
 Currently I'm working as a freelancer of full stack developer
 
-There are some works I've code on personal purpose, you can check it out [here](https://www.notion.so/bcf34d2d1fd64d169dff00f9626b4572)
+There are some works I've code for personal purpose, you can check it out [here](https://www.notion.so/bcf34d2d1fd64d169dff00f9626b4572)
 
 Let's get in touch through these contacts below 😀
 
